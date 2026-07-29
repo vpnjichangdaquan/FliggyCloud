@@ -15,7 +15,7 @@
 
 [FliggyCloud官网注册入口](https://fliggycloud.cc/#/register?code=6IjPKQRn)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
 
@@ -457,7 +457,7 @@ FliggyCloud 注册入口：
 
 [FliggyCloud官方注册入口](https://fliggycloud.cc/#/register?code=6IjPKQRn)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 使用提示：
 

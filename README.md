@@ -13,9 +13,9 @@
 
 飞天猪注册入口：
 
-[FliggyCloud官网注册入口](https://a.wwaann.com/?s=fliggycloud)
+[FliggyCloud官网注册入口](https://a.ggddxx.com/?s=fliggycloud)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 ---
 
@@ -455,9 +455,9 @@ FliggyCloud 支持常见网络客户端使用方式，具体配置方式根据�
 
 FliggyCloud 注册入口：
 
-[FliggyCloud官方注册入口](https://a.wwaann.com/?s=fliggycloud)
+[FliggyCloud官方注册入口](https://a.ggddxx.com/?s=fliggycloud)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 使用提示：
 
